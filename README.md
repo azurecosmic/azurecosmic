@@ -1,5 +1,4 @@
-### ✌️Play my Life, Play the World! Live Fun Everywhere✌️
-<br>
+### ✌️Play my Life, Play the World! Live Fun Everywhere✌️<br>
 
 🌱 Currently learning 🌱
 - Java, Python
