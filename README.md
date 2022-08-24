@@ -1,4 +1,6 @@
-### Hi there 👋
+### Play my Life, Play the World! Live Fun Everywhere✌️
+
+- 🌱 I’m currently learning ...
 
 <!--
 **azurecosmic/azurecosmic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
